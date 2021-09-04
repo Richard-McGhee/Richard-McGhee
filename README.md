@@ -11,3 +11,6 @@ There's always something new to learn!
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... My email -> [richardjmcghee@yahoo.com](mailto:richardjmcghee@yahoo.com)
 - ⚡ Fun fact: ... I lived in Japan for a year and I'm currently becoming fluent in Japanese. I'm also a huge fan of the 💞 emoji!
+
+***
+Richard "Golden Programmer" McGhee
